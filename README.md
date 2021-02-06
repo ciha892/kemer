@@ -1,3 +1,3 @@
 # kemer
 Summer
-Hı nice meet 
+Hı nice to be here
